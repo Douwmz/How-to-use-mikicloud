@@ -1,6 +1,6 @@
 **HneKo注册后便可以开始用，第一个的话便宜，这个的话比较稳定，自由选择，也可以作为备用加速器使用**
 
-1、[注册](https://mikicloud.xyz/#/register?code=w509yqLv),点击“注册”后直接注册；
+1、[注册](https://mikicloud.xyz/#/register?code=WETfBxxE),点击“注册”后直接注册；
 
 2、注册后使用你注册的账号进行登录；
 
